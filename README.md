@@ -1,2 +1,0 @@
-# kavya
-hemabarathi,kiruba,abinaya
